@@ -1,0 +1,1 @@
+# yoshinagadaiki.github.io
